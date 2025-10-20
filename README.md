@@ -1,2 +1,2 @@
 # Lucas_Repository
-Esse é meu repositório
+Esse ERA seu repositório.
