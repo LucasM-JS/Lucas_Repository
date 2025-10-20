@@ -1,2 +1,2 @@
 # Lucas_Repository
-Esse ERA seu repositório.
+Esse é NOSSO repositório. (COMUNISMO)
